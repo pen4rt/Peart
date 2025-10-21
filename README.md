@@ -39,9 +39,7 @@ Our goal is to blend **art, technology, and creativity** into every project we b
 
 ## 📫 Connect with Us
 🌍 Website: *coming soon*  
-📧 Email: [penart.creative@gmail.com](mailto:penart.creative@gmail.com)  
-🐦 Twitter/X: [@PenartCreative](https://twitter.com/PenartCreative)  
-🎮 itch.io: [penartcreative.itch.io](https://penartcreative.itch.io)
+📧 Email: [penart.creative@gmail.com](mailto:penart.creativ@gmail.com)  
 
 ---
 
